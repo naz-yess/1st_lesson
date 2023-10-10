@@ -5,7 +5,7 @@
 
 ## **Contacts:**
 - **Email:** 210304077@stu.sdu.edu.com
-- **Phone:** 87762856656
+- **Phone number:** 87762856656
 - **Telegram:** @naz_yess
 
 
